@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on R
 - 📫 You can reach me gonzalocontious@gmail.com
 
-<!---
+<!---Reach me for any assistance
 --->
